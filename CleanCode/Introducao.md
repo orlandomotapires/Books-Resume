@@ -1,0 +1,1 @@
+Para se obter habilidade profissional você precisa de conhecimento e trabalho
